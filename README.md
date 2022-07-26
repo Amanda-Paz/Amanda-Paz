@@ -1,4 +1,4 @@
-                                               are we ever gonna be better than this? 🌊
+                                                 are we ever gonna be better than this? 🌊
 
 <div align="center">
   <a href="https://github.com/Amanda-Paz">
